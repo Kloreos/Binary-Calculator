@@ -1,3 +1,1 @@
-Full project by PetesHacker
-
-Division will be added soon
+Division will be added soon due to my stupidity
